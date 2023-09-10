@@ -4,7 +4,7 @@ Actually this semester is my first semester of my double major in Computer Scien
 I'll ask a lot of questions about things I don't konw. i'd appreciate your help.
 
 My intersets and hobbies
-* :sports: _Sports_: watching sports games:basketball: :soccer: :baseball:, playing basketball :basketball:
+* :🏃🏃‍♂️: _Sports_: watching sports games:basketball: :soccer: :baseball:, playing basketball :⛹️:
 * :movie: _OTT, Movie_: watching OTT and Movie. I especially like Christoper Nolan's work
 
 <!--
