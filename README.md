@@ -1,5 +1,5 @@
 # My name is GO :smile:
-I am YoungWoon GO, student in the [Dept. of Sports Science](https://sports.seoultech.ac.kr/), [SeoulTech](https://www.seoultech.ac.kr/index.jsp).
+I am Young Woon GO, student in the [Dept. of Sports Science](https://sports.seoultech.ac.kr/), [SeoulTech](https://www.seoultech.ac.kr/index.jsp).
 
 Actually this semester is my first semester of my double major in Computer Science and Engineering. So there are many difficulties, but I won't give up.
 I'll ask a lot of questions about things I don't konw. i'd appreciate your help.
